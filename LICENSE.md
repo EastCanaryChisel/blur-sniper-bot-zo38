@@ -1,4 +1,4 @@
-# 
+# Get the ultimate blur sniper bot with smart blur sniper bot | rarity-analysis + floor-price-tracking. Featuring rarity-analysis and floor-price-tracking, it's the best choice for
 
 
 
